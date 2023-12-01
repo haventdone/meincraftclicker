@@ -1,2 +1,1 @@
-# meincraftclicker
-simple clicker
+i love anime girls
